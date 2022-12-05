@@ -1,3 +1,5 @@
-peças e concertos de bicicleta e garal 
+peças e concertos de bicicleta em garal 
 
-alunos:matheus fernando e gabriele turma:1 ano B
+alunos:matheus fernando e gabriele vitoria  
+
+turma:1 ano B
