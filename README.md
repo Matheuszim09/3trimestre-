@@ -1,3 +1,2 @@
-  Loja Peças e concertos de bicicleta em geral
-   Aluno:Matheus Fernando 
-     
+peças e concertos de bicicleta e garal 
+alunos:matheus fernandop e gabriele
